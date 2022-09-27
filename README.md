@@ -4,4 +4,4 @@
 - España
 - Franco
 - Gustavo
-#### [contenido de calidad] (http://images3.memedroid.com/images/UPLOADED708/62cec8ef5f67b.jpeg)
+#### [contenido de calidad](http://images3.memedroid.com/images/UPLOADED708/62cec8ef5f67b.jpeg)
