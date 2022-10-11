@@ -4,5 +4,5 @@
 - Java
 - HTML
 - CSS
-#### [Contenido de interés](http://images3.memedroid.com/images/UPLOADED708/62cec8ef5f67b.jpeg)
-[Persona promedio que ve esto](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTykZhBwvJ8tidcKdrn7nkOjeEcSZR5ar3cxw&usqp=CAU)
+#### [CONTENIDO DE INTERÉS](http://images3.memedroid.com/images/UPLOADED708/62cec8ef5f67b.jpeg)
+[NO ENTRES AQUÍ](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTykZhBwvJ8tidcKdrn7nkOjeEcSZR5ar3cxw&usqp=CAU)
